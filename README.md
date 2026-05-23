@@ -7,9 +7,6 @@
 - ⚡ Fun fact: (My bias is Danielle from NewJeans), (I play Roblox, Valorant, Genshin Impact, Solo Leveling: Rise, States of Survival)
 - 📫 How to reach me:
   - Email: akiato.designer@gmail.com
-  - Calendly: https://calendly.com/rafidninad/45-minutes-1-to-1-meeting?month=2024-06
-  - Linktree: https://linktr.ee/ninad_akiato
-  - Personal Potfolio Website: https://ninad-akiato.carrd.co/
-- Those who are searching for my published works as a writer:
-  - Neobook: https://neobook.org/ninad_akiato/
-  - WWattpat: https://www.wattpad.com/user/NinadAkiato
+  - Calendly: https://calendly.com/rafidninad/1-hour-meeting
+  - My Socials: https://kasbu.bio/ninadakiato
+
